@@ -2,7 +2,7 @@
 - 👀 I’m interested in Write code & make my own server.
 - 🌱 I’m currently learning JS, HTML, CSS etc.
 - 💞️ I’m looking to collaborate on Microsoft, Apple, Nvidia, AMD, Indra, Proton & the big ones hehe. 
-- 📫 How to reach me who knows.
+- 📫 How to reach me, who knows.
 
 
 
