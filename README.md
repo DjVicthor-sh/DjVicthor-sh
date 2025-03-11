@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning JS, HTML, CSS etc.
 - 💞️ I’m looking to collaborate on Microsoft, Apple, Nvidia, AMD, Indra, Proton & the big ones hehe. 
 - 📫 How to reach me, who knows.
-
+- Me gusta el pene de negro gigante, que me den por el culo 100 negros sin parar y comermelas a pares.
+- 🏳️‍🌈(homosexual)🏳️‍⚧️(trans)
 
 
 <!---
